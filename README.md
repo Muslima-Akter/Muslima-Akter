@@ -1,5 +1,5 @@
 ### Hi there 👋, I am Muslima Akter
-#### Professonal web developer & WordPress Customizer
+#### Professional web developer & WordPress Customizer
 ![Professonal web developer & WordPress Customizer](https://pbs.twimg.com/profile_banners/1569394042961825792/1663008879/1500x500)
 
 This is Muslima, with years of expertise as a Web Developer and WordPress specialist. I can ensure that you will receive high-quality services at a reasonable cost. 
